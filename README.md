@@ -1,0 +1,1 @@
+# iessimarro-smx2a-projecte-LUIGREGRA-auladigital-Copiar
